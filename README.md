@@ -19,5 +19,5 @@ Here are some ideas to get you started:
 
 - 😄 Pronouns: I dont know what they mean by this lol
 
-- ⚡ Fun fact: A dolphin is the only know mamal and outside of humans, the only other creature or insect on the planet that gets high for pure pleasure by provoking venimous fish to spray out chemicals into the water. 
+- ⚡ Fun fact: A dolphin is the only know mamal and outside of humans, the only other creature or insect on the planet that gets high for pure pleasure by provoking venimous fish to spray out chemicals into the water.....
 -->
